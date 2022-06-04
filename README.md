@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Node.js MongoDB
 - 🚀 I’m always open to new learning experiences
 - 🧗‍♂️ I enjoy all outdoor activities
-- 🤸‍♂️ And yes... I can Backflip  
+- 🏋️‍♂️ And yes... I can deadlift 260kg!! 
 
 
 <h2><img src="https://media.giphy.com/media/VdoIFLsMIlwzfKD520/giphy.gif" height="20"> Stuff I Know</h2>                                                                                        
